@@ -8,7 +8,7 @@
 
 1. Natalia Milene Rojas Escudero  72776147@mail.isil.pe
 2. Sergio Enrique Vargas Fernández  72917707@mail.isil.pe
-3. Cori Contreras Alejandro Vicente 47972731@mail.isil.pe
+3. Alejandro Vicente Cori Contreras 47972731@mail.isil.pe
 4. Luigui Alva Sánchez 48584750@mail.isil.pe
 5. Ronald Yamil Soto Ramirez 74003435@mail.isil.pe
  
