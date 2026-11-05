@@ -15,7 +15,7 @@
 
 ## Video de exposición
 
-[Ver video en YouTube](PEGAR_AQUI_EL_ENLACE)
+[Ver video en YouTube](https://www.youtube.com/watch?v=gbUjgZ8EpFU)
 
 ## Descripción del trabajo
 
